@@ -1,6 +1,6 @@
 # Music we code to
 
-* [Programming Megaplaylist on youtube](https://open.spotify.com/playlist/5BmVkahY7vgSN9BsNsPdYf?si=1a9627c6cc7d49c0) - Aaron Penne's playlist, lo fi vibes
+* [Programming Megaplaylist on Spotify](https://open.spotify.com/playlist/5BmVkahY7vgSN9BsNsPdYf?si=1a9627c6cc7d49c0) - Aaron Penne's playlist, lo fi vibes
 * [Chillhop Raccoon on Youtube](https://www.youtube.com/watch?v=7NOSDKb0HlU) - Low fi chill hop with a nice raccoon friend to hang out with 
 * [Jason Lewis - Mind Amend on Youtube](https://youtube.com/c/MindAmend) - "isochronic tones" and brainwave stuff supposedly but also just good beats
 * [Zelda and Chill on Youtube](https://www.youtube.com/watch?v=GdzrrWA8e7A)
