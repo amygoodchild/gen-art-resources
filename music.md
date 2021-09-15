@@ -4,8 +4,8 @@
 * [Chillhop Raccoon on Youtube](https://www.youtube.com/watch?v=7NOSDKb0HlU) - Low fi chill hop with a nice raccoon friend to hang out with 
 * [Jason Lewis - Mind Amend on Youtube](https://youtube.com/c/MindAmend) - "isochronic tones" and brainwave stuff supposedly but also just good beats
 * [Zelda and Chill on Youtube](https://www.youtube.com/watch?v=GdzrrWA8e7A)
-* [Infra Expletive Deleted on Youtube](https://www.youtube.com/watch?v=h-v3_ad2aUQ) Hi Tech psytrance to bleep out all thoughts except code
-* [A9Concuss on Youtube](https://www.youtube.com/watch?v=OSyKziOvehc) Gabba / Noise
+* [Infra Expletive Deleted on Youtube](https://www.youtube.com/watch?v=h-v3_ad2aUQ) - Hi Tech psytrance to bleep out all thoughts except code
+* [A9Concuss on Youtube](https://www.youtube.com/watch?v=OSyKziOvehc) - Gabba / Noise
 * [Scott Lawlor - Journey through the Boötes Void on Bandcamp](https://scottlawlor.bandcamp.com/album/journey-through-the-bo-tes-void) - Ambient noise style music combined with space
 * [Ryan Celcius - Trapped in Japan on Youtube](https://youtu.be/DqPgURTYygQ) - Lo fi ish videos set to streams of transportation in Japan
 * [Form//Less - Superposition on Spotify](https://open.spotify.com/album/3WTtizcF0bxAoaGUygxJ0B) - Ambient
