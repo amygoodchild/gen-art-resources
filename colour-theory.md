@@ -4,7 +4,7 @@
 
 * 'The geometry of color perception'  
 [https://www.handprint.com/HP/WCL/color2.html](https://www.handprint.com/HP/WCL/color2.html)  
-(Shared by Ryan Struhl - “If you want to go really deep… amazing but very dense”) 
+(Shared by Ryan Struhl - "If you want to go really deep… amazing but very dense") 
 
 
 * 'Modern colour theory for traditional and digital painting media'  
@@ -14,7 +14,7 @@ like color contrast, difference and mixing")
 
 * 'The Art of Color: Color Wheel & Color Relationships'  
 [https://online.maryville.edu/liberal-arts-degrees/the-art-of-color](https://online.maryville.edu/liberal-arts-degrees/the-art-of-color)  
-(Shared by Louis-André Labadie - “A pretty nice summary of color theory deep-dives, from basic color relationships to different methods of palette-building across history”)
+(Shared by Louis-André Labadie - "A pretty nice summary of color theory deep-dives, from basic color relationships to different methods of palette-building across history")
 
 * James Gurney  
 [https://www.youtube.com/channel/UCTIoOLzT1jbxAcPW99xn0zQ](https://www.youtube.com/channel/UCTIoOLzT1jbxAcPW99xn0zQ)  
