@@ -25,8 +25,8 @@ Book: 'Color and Light: A guide for the realist painter'
 * Book: 'Kunst der Farbe' ('The Art of Color: The Subjective Experience and Objective Rationale of Color') - Johannes Itten  
 (Shared by Piter Pasma - "Apparently this is a fundamental colour theory book art students have to learn, it doesn't even have that many pictures, it's mostly text except for a few pages in the middle with colour wheels :-)"
 
-* 'Color Wheel Part 1' - James Gurney
-http://gurneyjourney.blogspot.com/2010/02/color-wheel-part-1.html
-'Gamut Masking' - James Gurney
-http://gurneyjourney.blogspot.com/2011/09/part-1-gamut-masking-method.html
-(Shared by Quag)
+* 'Color Wheel Part 1' - James Gurney   
+http://gurneyjourney.blogspot.com/2010/02/color-wheel-part-1.html   
+'Gamut Masking' - James Gurney   
+http://gurneyjourney.blogspot.com/2011/09/part-1-gamut-masking-method.html    
+(Shared by Quag)   
